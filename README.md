@@ -1,0 +1,2 @@
+# verkefni4p1
+ 
